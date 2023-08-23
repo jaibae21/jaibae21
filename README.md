@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jaibae21
 - 👀 I’m interested in marvel things, books, tv. I love learning/hearing about anything really. 
-- 📚 Currently attending UAH and Intern at Siemens. 
+- 📚 Currently attending UAH for a Masters in Software Engineering and work at SAIC. 
 - 📫 Contact: jmg0053@uah.edu
 
 <!---
